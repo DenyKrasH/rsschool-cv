@@ -1,1 +1,1 @@
-https://DenyKrasH.github.io/rsschool-cv/cv
+https://DenyKrasH.github.io/rsschool-cv/
